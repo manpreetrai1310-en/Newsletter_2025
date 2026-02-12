@@ -42,19 +42,19 @@ The Department of Business Administration was established in the year 2007 to im
 | CII Majestic Skill will Lead Edition V| Seminar Hall, MBA Block, GNDEC, Ludhiana | 24th September 2024|
 | Industrial Visit to Sonalika Agro Industries| Hoshiarpur, Punjab | 8th November 2024|
 | Expert talk on GST and Income tax by CA Avneet Singh | Seminar Hall, MBA Block, GNDEC, Ludhiana | 12th November 2024|
-| Industrial Visit to SML ISUZU| Swan Auto Industries, Focal Point, Ludhiana  | 28th February 2024 |
+| Industrial Visit to SML ISUZU| Rup Nagar  | 28th February 2024 |
 | Expert talk on Empowering Entrepreneurs by Ms. Louis Ross| Seminar Hall, MBA Block, GNDEC, Ludhiana | 7th February 2024|
 
 # Cultural and Sports Activities
 
 | Activities |  Place |  Dates |
 |:---------| :----------------------------------------------------------------------------------------------------|--------------|                          
-| Mehndi Competition	|Held in Department of Business Administration, Guru Nanak Dev Engineering College, Ludhiana    | 	1st November, 2023   |
-| Lohri Festival  | Held in Department of Business Administration, Guru Nanak Dev Engineering College, Ludhiana     |	12th January, 2024     |
-| Visit To Gurudwara Ber Sahib And Haveli | Sultanpur Lodhi & Jalandhar	| 16th March, 2024       |
+| Teej Festival	|Held in Department of Business Administration, Guru Nanak Dev Engineering College, Ludhiana    | 	12th August, 2024   |
+| Rangoli Competition  | Held in Department of Business Administration, Guru Nanak Dev Engineering College, Ludhiana     |	29th August, 2024     |
+| Eye Awarness Camp by Dr. Jitesh Singh | Held in Department of Business Administration, Guru Nanak Dev Engineering College, Ludhiana	| 24th October, 2024       |
 
 <P align=justify>
-The students of Department of Business Administration organized the langar in November, 2023 in connection with the worth of Jagat Guru, "Guru Nanak Dev Ji's". The motive was to instill the principles of Vand Shako among the students.
+
 </P>
 
 ## Events Attended (FDPs/Conferences/STCs/SDTs/Workshops/Webinars etc.)  
