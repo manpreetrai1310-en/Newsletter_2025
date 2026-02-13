@@ -79,7 +79,7 @@ The Department of Business Administration was established in the year 2007 to im
 **Dr. Parampal Singh HOD Department of Business Administration giving a token of gratitude to Mr. Mahesh Munjal in the event of CII Majestic Skill will Lead Edition V event on 24th september 2024. The CII event serves as an academic platform where MBA students from different institutions participate by delivering presentations on current and relevant topics, thereby fostering knowledge exchange, critical thinking and professional development.** 
 
 ![SDT](Images/nss.jpeg)
-**Yoga Session organised by Dept. of Business Administration on 29th August, 2023**   
+**Dr. Jitesh Singh delivered an informative session during the NSS Eye Awareness Camp held on 24th October 2024.The camp focused on educating participants about early detection of vision-related issues, promoting healthy eye practices, and fostering social responsibility among students.**   
 
 
 ![SDT](Images/CIIPIC2023.jpeg)
