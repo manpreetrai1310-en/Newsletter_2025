@@ -75,16 +75,15 @@ The Department of Business Administration was established in the year 2007 to im
 ## Student's Corner  
 
 
-![SDT](Images/InductionPic2023.jpeg)
-**Induction Program organised by Dept. of Business Administration on 11th August, 2023**  
+![SDT](Images/CIIPIC2023.jpeg)
+**Dr. Parampal Singh HOD Department of Business Administration giving a token of gratitude to Mr. Mahesh Munjal in the event of CII Majestic Skill will Lead Edition V event on 24th september 2024. The CII event serves as an academic platform where MBA students from different institutions participate by delivering presentations on current and relevant topics, thereby fostering knowledge exchange, critical thinking and professional development.** 
 
-
-![SDT](Images/Yogapic2023.jpeg)
+![SDT](Images/nss.jpeg)
 **Yoga Session organised by Dept. of Business Administration on 29th August, 2023**   
 
 
 ![SDT](Images/CIIPIC2023.jpeg)
-**Dr. Parampal Singh HOD Department of Business Administration giving a token of gratitude to Mr. Mahesh Munjal in the event of CII Majestic SKILL-WILL-LEAD event on 12th October 2023**  
+**Dr. Parampal Singh HOD Department of Business Administration giving a token of gratitude to Mr. Mahesh Munjal in the event of CII Majestic Skill will Lead Edition V event on 24th september 2024. The CII event serves as an academic platform where MBA students from different institutions participate by delivering presentations on current and relevant topics, thereby fostering knowledge exchange, critical thinking and professional development.**  
 
 
 ![SDT](Images/VISITTOGURUDWARABERSAHIB.png)
