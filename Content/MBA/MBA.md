@@ -86,7 +86,7 @@ The Department of Business Administration was established in the year 2007 to im
 **The Teej celebration was held on 12th August 2024 to promote cultural heritage and traditional values among students. The event encouraged active participation through various cultural activities and strengthened community bonding within the institution.**  
 
 
-![SDT](Images/rangoli.png)
+![SDT](Images/rangoli.jpeg)
 **The Rangoli Competition was organized on 29th August 2024 to encourage creativity and artistic expression among students. The event provided a platform for participants to showcase their design skills while promoting cultural values and teamwork.**   
 
 
