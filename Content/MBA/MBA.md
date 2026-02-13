@@ -82,25 +82,19 @@ The Department of Business Administration was established in the year 2007 to im
 **Dr. Jitesh Singh delivered an informative session during the NSS Eye Awareness Camp held on 24th October 2024.The camp focused on educating participants about early detection of vision-related issues, promoting healthy eye practices, and fostering social responsibility among students.**   
 
 
-![SDT](Images/CIIPIC2023.jpeg)
-**Dr. Parampal Singh HOD Department of Business Administration giving a token of gratitude to Mr. Mahesh Munjal in the event of CII Majestic Skill will Lead Edition V event on 24th september 2024. The CII event serves as an academic platform where MBA students from different institutions participate by delivering presentations on current and relevant topics, thereby fostering knowledge exchange, critical thinking and professional development.**  
+![SDT](Images/teej.jpeg)
+**The Teej celebration was held on 12th August 2024 to promote cultural heritage and traditional values among students. The event encouraged active participation through various cultural activities and strengthened community bonding within the institution.**  
 
 
-![SDT](Images/VISITTOGURUDWARABERSAHIB.png)
-**A Visit to Sultanpur Lodhi, Gurudwara Ber Sahib by Dept. of BusienssAdminstartion on 16th March, 2024**   
+![SDT](Images/rangoli.png)
+**The Rangoli Competition was organized on 29th August 2024 to encourage creativity and artistic expression among students. The event provided a platform for participants to showcase their design skills while promoting cultural values and teamwork.**   
 
 
-![SDT](Images/MehndiCompetition1.jpeg)
 
-![SDT](Images/Mehndi2.jpeg)
-**Students demonstrating their skills in Mehndi Competition organized by Dept. of Business Administration**    
-
-
-![SDT]( Images/ZoologicalPark.jpeg)
-**Students of Dept. of Business Adminstartion posing in front of Mahendra Chaudhary Zoological Park with HOD Dr. Parampal Singh & Dr. Mandeep Kaur Khosa**   
+![SDT](Images/utsav.jpeg)
+**The students secured the Overall Trophy for the Department at the Anand Utsav, demonstrating teamwork and outstanding performance across multiple competitive events.**    
 
 
-![SDT](Images/Langar.jpeg)
-**The students of Department of Business Administration organised the langar on the occassion of Guru Nanak Dev Ji Gurpurab**
+
 
 
