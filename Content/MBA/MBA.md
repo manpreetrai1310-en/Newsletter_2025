@@ -2,7 +2,7 @@
 
 ## Message from HoD's Desk
 
-![HSR](Images/Param.png)
+![HSR](Images/HODmam.png)
 
 <p align=justify>
 
